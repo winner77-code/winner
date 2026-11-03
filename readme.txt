@@ -1,1 +1,2 @@
-Je suis Winner KINGUE étudiant en L2 informatique
+Je suis Winner KINGUE ï¿½tudiant en L2 informatique
+J'aime beaucoup le rÃ©seau
