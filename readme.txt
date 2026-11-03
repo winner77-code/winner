@@ -1,2 +1,1 @@
-Je suis Winner KINGUE ï¿½tudiant en L2 informatique
-J'aime beaucoup le rÃ©seau
+J'aime aussi la cybersécurité
